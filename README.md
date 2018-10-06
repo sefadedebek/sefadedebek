@@ -1,2 +1,0 @@
-# sefadedebek
-Sefa Dedebek
